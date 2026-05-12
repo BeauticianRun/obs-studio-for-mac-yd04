@@ -1,4 +1,4 @@
-# 
+# OBS Studio for macOS premium Transition: slow-motion & text-animation offers the most advanced OBS Studio for macOS transition, with slow-motion and text-animation. Ideal for
 
 
 
